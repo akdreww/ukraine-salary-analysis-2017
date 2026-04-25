@@ -1,0 +1,1 @@
+# ukraine-salary-analysis-2017
